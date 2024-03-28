@@ -1,0 +1,1 @@
+# HENCE-internship-application-visuals
